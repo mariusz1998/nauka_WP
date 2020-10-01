@@ -1,1 +1,0 @@
-# nauka_WP
